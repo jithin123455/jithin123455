@@ -3,3 +3,5 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%230C2936&lines=I+AM+ALSO+A+LEGIT+%26+TRUSTED+CARDER)](https://git.io/typing-svg) <br>
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%230C2936&lines=IF+YOU+WANT+TO+BUY+PRODUCTS+AT+CHEAP+RATES)](https://git.io/typing-svg) <br>
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%230C2936&lines=YOU+CAN+DM+ME+ON+TELEGRAM)](https://git.io/typing-svg) <br>
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%230C2936&lines=%F0%9F%98%82+DONT+SPAM+OR+MISBEHAVE+TO+ME)](https://git.io/typing-svg) <br>
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23362114&multiline=true&lines=%F0%9F%98%82+THEN+I+WILL+FUCK+YOU+%F0%9F%96%95%F0%9F%8F%BF)](https://git.io/typing-svg)
